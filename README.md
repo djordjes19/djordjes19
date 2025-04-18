@@ -5,7 +5,7 @@ Welcome to my GitHub profile!<br/> I'm a final-year Information Technology stude
 
 
 Email: djspasojevic02@gmail.com <br/>
-[LinkedIn Profile](www.linkedin.com/in/djordje-spasojevic-8a884b322/)<br/><br/>
+[LinkedIn Profile](https://www.linkedin.com/in/djordje-spasojevic02/)<br/><br/>
 
 
 ---
